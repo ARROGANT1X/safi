@@ -1,6 +1,5 @@
 Gilamesh Sama
-(https://www.facebook.com/Fock.yaah# wahmKRS
-# wahmKRS
+(https://www.facebook.com/
 <______________________________________________________________________________________________________>
 <h1> اهلا بكم </h1> 
 
